@@ -32,4 +32,4 @@ nitro pdf pro crack + serial key
 
 nitro pro crack version download
 
-This project provides a cracked version of Microsoft office , enabling users to use the premium features without purchasing a license!
+This project provides a cracked version of Nitro Pro , enabling users to use the premium features without purchasing a license!
